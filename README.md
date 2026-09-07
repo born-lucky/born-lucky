@@ -1,5 +1,5 @@
 Building at [Unsealed](https://unsealed.pro).
-♀️
+☦️
 
 Independent systems and game work. Public source for hiring and collaborators.
 
