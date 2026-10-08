@@ -1,4 +1,5 @@
-Building at [Unsealed](https://unsealed.pro).
+All my work is non-profit A.I work until hired by a company. 
+
 ☦️
 
 Independent systems and game work. Public source for hiring and collaborators.
