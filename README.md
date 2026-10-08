@@ -12,5 +12,5 @@ Independent systems and game work. Public source for hiring and collaborators.
 
 Support the work:
 
-- [Donate](https://unsealed.pro/donate/)
-- [Ko-fi](https://ko-fi.com/unsealedpro)
+- [Donate](https://ko-fi.com/bornlucky))
+- [Ko-fi](https://ko-fi.com/bornlucky))
